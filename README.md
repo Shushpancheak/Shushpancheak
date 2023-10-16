@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Makcieml@gmail.com**
 
-- 📄 Know about my experiences [https://www.overleaf.com/read/rmzkvcjsdgwk](https://www.overleaf.com/read/rmzkvcjsdgwk)
+- 📄 [CV](https://www.overleaf.com/read/rmzkvcjsdgwk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
